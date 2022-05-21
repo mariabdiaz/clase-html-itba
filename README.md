@@ -1,7 +1,0 @@
-# clase-html-itba
-
-no toy como estas???
-
-hola hola
-
-hola
